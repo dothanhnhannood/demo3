@@ -1,0 +1,1 @@
+# Nghi-m-c-u-khoa-h-c-v-h-i-ch-ng-brainrot-h-c-sinh
